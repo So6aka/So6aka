@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @So6aka
+- 👀 I’m interested in coding and chill
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on big company
+- 📫 How to reach me the perfect self...
